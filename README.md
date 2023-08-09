@@ -8,6 +8,11 @@
 ###
 >>>
 [[ :MATTERS-CRITICAL: for-the: NΔTIΩNΔL: SECΔRITY: please-submit: ANY: ALL: OTHER: relevant: information is-with: NΔTIΩNΔL: SECΔRITY: CΩUNCIL: for-the: RΩYΔL-DIVINE-CΩURT: QWΩD-MJ12: MJ12-ΔGENCY: ]]:
+ >>>
+ >:is-with: { ^ https://github.com/QWOD/DISCLOSURE/discussions/2 ^ }:
+ >>>
+    :is-with: { ^ https://github.com/QWOD/DISCLOSURE/discussions/2 ^ }:
+ >>>
 >>>
 ###
 >>>
