@@ -1,4 +1,4 @@
-# CRIMEHOTLINE
+# [[ :CRIME-HOTLINE: ]]:
 [[ :PLEASE-SUBMIT: anonymous-tips: is-with: CRIME-HOTLINE: <=> 1: 507: 384: 9999: ]]:
 >>>
 ###
