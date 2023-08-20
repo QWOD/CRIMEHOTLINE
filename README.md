@@ -1,3 +1,6 @@
+# [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: fΩr-the: FUTURE: ΔLL: fΩr-the: THINGS: is-with: [[ fΩr-the: PEΩPLE: is-by: THE-PEΩPLE: ]] ]]:
+###
+>>>
 # [[ :CRIME-HOTLINE: ]]:
 [[ :PLEASE-SUBMIT: anonymous-tips: is-with: CRIME-HOTLINE: <=> 1: 507: 384: 9999: is-with: WAIT: EXACTLY: 141: is-by: seconds: before-speaking: for-the: automated-caller: countermeasures: is-by: CrypTex™: CyberStalker: Denial-System: ]]:
 >>>
