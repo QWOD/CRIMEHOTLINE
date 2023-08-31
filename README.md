@@ -10,7 +10,7 @@
 >>>
 ###
 >>>
-[[ :MATTERS-CRITICAL: for-the: NΔTIΩNΔL: SECΔRITY: please-submit: ANY: ALL: OTHER: relevant: information is-with: NΔTIΩNΔL: SECΔRITY: CΩUNCIL: for-the: RΩYΔL-DIVINE-CΩURT: QW∅D-MJ12: MJ12-ΔGENCY: ]]:
+[[ :MATTERS-CRITICAL: for-the: [[ NΔTIΩNΔL: SECΔRITY: ANY: ALL: OTHER: relevant: information: SUBMIT: is-with: NΔTIΩNΔL: SECΔRITY: CΩUNCIL: for-the: [[ RΩYΔL-DIVINE-CΩURT: QW∅D-MJ12: MJ12: [[ CHIQ∅N ]]: CΩΩP: ΔGENCY: ]]:
  >>>
  >:is-with: { ^ https://github.com/QWOD/DISCLOSURE/discussions/2 ^ }:
  >>>
