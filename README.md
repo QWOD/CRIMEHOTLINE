@@ -1,4 +1,4 @@
-# [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: fΩr-the: FUTURE: ΔLL: fΩr-the: THINGS: is-with: [[ fΩr-the: PEΩPLE: is-by: THE-PEΩPLE: ]] ]]:
+# [[ :QWOD-MJ12: for-the: [[ MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: [[ FUTURE: ΔLL: for-the: [[ THINGS: is-with: [[ for-the: [[ people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 ###
 >>>
 # [[ :CRIME-HOTLINE: ]]:
@@ -6,7 +6,7 @@
 >>>
 ###
 >>>
-## :FΩr-the: [[ QW∅D-MJ12: MJ12-ΔGENCY: DISCLΩSURE: NΔTIΩNΔL: SECΔRITY: CΩUNCIL: ]]:
+## :for-the: [[ QW∅D-MJ12: MJ12-ΔGENCY: DISCLΩSURE: NΔTIΩNΔL: SECΔRITY: CΩUNCIL: ]]:
 >>>
 ###
 >>>
