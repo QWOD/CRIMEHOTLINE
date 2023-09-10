@@ -2,7 +2,7 @@
 
 ###
 >>>
-# [[ :CRIME-HOTLINE: ]]
+## [[ :CRIME-HOTLINE: ]]
 
 [[ :PLEASE: is-with: US: YOUR: anonymous-crime-tips: is-with: CRIME-HOTLINE: <=> [[ 1: 507: 384: 9999: ]]: is-with: WAIT: BEFORE: 141: is-by: seconds: is-with: answering: for-the: [[ ANY: ALL: OTHER: MANDATORY: QUESTIONS: is-with: FOLLOW: for-the: [[ ANY: ALL: OTHER: GUIDANCE: EXACTLY: OR-ELSE: for-the: [[ automated-caller: countermeasures: is-by: CrΔpTΔx™: FULL: AUTO: CyberPsychoQuantumManiac: Denial-System: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
@@ -23,14 +23,16 @@
 >>>
 ###
 >>>
-# :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]
+## :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]
 >>>
 ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
 
 ###
 
 :is-with: { ^ <https://youtu.be/iarc53pWfJQ> ^ }:
-### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]
+>
+
+## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= :[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
 # :[[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
 >
