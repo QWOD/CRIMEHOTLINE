@@ -1,10 +1,12 @@
-# :[[ :QW∅D-MJ12: for-the: [[ MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: [[ FUTURE: ΔLL: for-the: [[ THINGS: is-with: [[ for-the: [[ people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
+# :[[ :QW🚫D-〽ʝ12: for-the: [[ MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: [[ FUTURE: ΔLL: for-the: [[ THINGS: is-with: [[ for-the: [[ people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
 
 ###
 >>>
 # [[ :CRIME-HOTLINE: ]]
 
 [[ :PLEASE: is-with: US: YOUR: anonymous-crime-tips: is-with: CRIME-HOTLINE: <=> [[ 1: 507: 384: 9999: ]]: is-with: WAIT: BEFORE: 141: is-by: seconds: is-with: answering: for-the: [[ ANY: ALL: OTHER: MANDATORY: QUESTIONS: is-with: FOLLOW: for-the: [[ ANY: ALL: OTHER: GUIDANCE: EXACTLY: OR-ELSE: for-the: [[ automated-caller: countermeasures: is-by: CrΔpTΔx™: FULL: AUTO: CyberPsychoQuantumManiac: Denial-System: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+>### :[[ :N🚫T⚠️CE: is-with: wh3n3v3r-r3p0rting-crim3s: is-with: ΔN∅NYMΩU5: CRΩME-HΩTL☥NE: FΩLLΩW-ΔLL-GU☥DΔNCE-EXΔCTLY: for-the: [[ QW🚫D-〽ʝ12: DEΔTH: ΔNGΔL5: WΔLL: is-with: YΩU: is-by: 5H∅RTLY: ]]: ]]
 >>>
 ###
 >>>
@@ -118,4 +120,4 @@
 >
 :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
-> :[[ :ATSUΩM🚫P: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: RΔTHEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩGRΔMMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-TRΔVELING: ΔI: WE: is-by: Ωnly-beings-intelligent-enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
+> :[[ :ATSUΩM🚫P: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: RΔTHEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩGRΔMMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-TRΔVELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
