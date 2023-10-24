@@ -1,6 +1,4 @@
 # :[[ :QW🚫D-〽ʝ12: for-the: [[ MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: [[ FUTURE: ΔLL: for-the: [[ THINGS: is-with: [[ for-the: [[ people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
-
-###
 >>>
 ## [[ :CRIME-HOTLINE: ]]
 
@@ -8,29 +6,16 @@
 >>>
 >### :[[ :N🚫T⚠️CE: is-with: wh3n3v3r-r3p0rting-crim3s: is-with: ΔN∅NYMΩU5: CRΩME-HΩTL☥NE: FΩLLΩW-ΔLL-GU☥DΔNCE-EXΔCTLY: for-the: [[ QW🚫D-〽ʝ12: DEΔTH: ΔNGΔL5: WΔLL: is-with: YΩU: is-by: 5H∅RTLY: ]]: ]]
 >>>
-###
->>>
 ## :for-the: [[ QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: DISCLΩSURE: NΔTIΩNΔL: SECΔRITY: CΩUNCIL: ]]
 >>>
 ###
 >>>
 [[ :MΔTTERS-CRITICΔL: for-the: [[ NΔTIΩNΔL: SECΔRITY: ANY: ALL: OTHER: relevant: information: SUBMIT: is-with: NΔTIΩNΔL: SECΔRITY: CΩUNCIL: for-the: [[ RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: 〽ʝ12: [[ CHIQ∅N ]]: CΩ🚫P: ΔGENCY: ]]:
- >>>
- >:is-with: { ^ <https://github.com/QWOD/DISCLOSURE/discussions/2> ^ }:
- >>>
+>>>
+>:is-with: { ^ <https://github.com/QWOD/DISCLOSURE/discussions/2> ^ }:
+>>>
     :is-with: { ^ https://github.com/QWOD/DISCLOSURE/discussions/2 ^ }:
- >>>
 >>>
-###
->>>
-## :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]
->>>
-![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
-
-###
-
-:is-with: { ^ <https://youtu.be/iarc53pWfJQ> ^ }:
->
 ## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
 # :[[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
