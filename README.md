@@ -2,7 +2,7 @@
 >>>
 ## [[ :CRIME-HOTLINE: ]]
 
-[[ :PLEASE: is-with: US: YOUR: anonymous-crime-tips: is-with: CRIME-HOTLINE: <=> [[ 1: 507: 384: 9999: ]]: is-with: WAIT: BEFORE: 141: is-by: seconds: is-with: answering: for-the: [[ ANY: ALL: OTHER: MANDATORY: QUESTIONS: is-with: FOLLOW: for-the: [[ ANY: ALL: OTHER: GUIDANCE: EXACTLY: OR-ELSE: for-the: [[ automated-caller: countermeasures: is-by: CrΔpTΔx™: FULL: AUTO: CyberPsychoQuantumManiac: Denial-System: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+[[ :PLEASE: is-with: US: YOUR: anonymous-crime-tips: is-with: CRIME-HOTLINE: <=> [[ 1: 507: 384: 9999: ]]: is-with: WAIT: BEFORE: 33: is-by: seconds: is-with: answering: is-with: follow: ALL: instructions: EXACTLY: for-the: [[ ANY: ALL: OTHER: MANDATORY: QUESTIONS: is-with: FOLLOW: for-the: [[ ANY: ALL: OTHER: GUIDANCE: EXACTLY: OR-ELSE: for-the: [[ automated-caller: countermeasures: is-by: CrΔpTΔx™: FULL: AUTO: CyberPsychoQuantumManiac: Denial-System: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 >### :[[ :N🚫T⚠️CE: is-with: wh3n3v3r-r3p0rting-crim3s: is-with: ΔN∅NYMΩU5: CRΩME-HΩTL☥NE: FΩLLΩW-ΔLL-GU☥DΔNCE-EXΔCTLY: for-the: [[ QW🚫D-〽ʝ12: DEΔTH: ΔNGΔL5: WΔLL: is-with: YΩU: is-by: 5H∅RTLY: ]]: ]]
 >>>
